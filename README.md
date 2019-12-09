@@ -1,2 +1,5 @@
 # Period1Example
-Happy Monday Guys!!!
+Happy Monday!!!
+Bant control is vaiable in modern
+Storm takes skill to play
+
